@@ -1,16 +1,21 @@
-## Hi there 👋
+## Vua Sim Số Đẹp
 
-<!--
-**vuasimsodep/vuasimsodep** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Không dành cho số đông, chỉ dành cho người có gu. Vua Sim Số Đẹp – nơi hội tụ sim chất, số vip, thần số học chuẩn, đậm cá tính và phong thủy. Đặt sim dễ – khẳng định đẳng cấp ngay!
 
-Here are some ideas to get you started:
+Thông tin liên hệ:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Địa chỉ: Số 3/98 Thái Hà, phường Đống Đa, thành phố Hà Nội, Hà Nội, Việt Nam
+
+- SĐT: 0975626262
+
+- Email: khosimdaigia@gmail.com
+
+- Website: https://vuasimsodep.com/
+
+https://vimeo.com/vuasimsodep
+
+https://www.tumblr.com/vuasimsodepcom
+
+https://www.twitch.tv/vuasimsodep
+
+https://www.producthunt.com/@vuasimsodep
